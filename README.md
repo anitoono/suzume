@@ -1,2 +1,0 @@
-# suzume
-vHKGYkgkgdsgufg
